@@ -1,5 +1,5 @@
 ### Hi gays ✨
-![](https://media.tenor.com/IXEjISLH__gAAAAM/mopping-the-floor-butters-stotch.gif)
+![](https://media.tenor.com/4EYgpYevtPEAAAAM/omori-omori-kel.gif)
 <!--
 **kinolegal/kinolegal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
