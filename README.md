@@ -1,5 +1,5 @@
 ### Hi gays ✨
-![](https://media.tenor.com/4httpsEYgpYevtPEAAAAM/omori-omori-kel.gif)
+![](https://media.tenor.com/S21bXAayRwQAAAAM/omori-kel-omori-meme.gif)
 ![](https://media.tenor.com/y3PMMDdODQEAAAAM/omori-kel.gif)
 <!--
 **kinolegal/kinolegal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
